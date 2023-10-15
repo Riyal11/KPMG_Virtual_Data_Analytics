@@ -1,0 +1,2 @@
+# KPMG_Virtual_Data_Analytics
+![Certificate](https://github.com/Riyal11/KPMG_Virtual_Data_Analytics/blob/590a1153a46457eef3225456498135c2c2e3dd78/KPMG%20AU_Data_Analytics_completion_certificate_page-0001.jpg)
